@@ -7,11 +7,6 @@ Prof.  Roberson Junior Fernandes Alves
 
 
 
-Modelagem de Reserva de salas e espaços
-
-
-
-
 
 Cauana Rosin Ghizzi e Natani Gayardo
 
